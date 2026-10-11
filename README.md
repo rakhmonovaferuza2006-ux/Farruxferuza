@@ -1,2 +1,2 @@
-# Farruxferuza
+# Farrukhferuza
 Пригласительный 
